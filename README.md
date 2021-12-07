@@ -1,0 +1,2 @@
+# Uravnenie
+Uravnenie
